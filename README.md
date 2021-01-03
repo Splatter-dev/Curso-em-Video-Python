@@ -5,7 +5,6 @@ Anotações e exericios realizados de todas as aulas do Mundo 1, 2 e 3 do Curso 
 --------------
 
 
-
 Link para o curso:  https://www.youtube.com/playlist?list=PLvE-ZAFRgX8hnECDn1v9HNTI71veL3oW0
 
 
